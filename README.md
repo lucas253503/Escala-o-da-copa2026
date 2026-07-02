@@ -1,0 +1,1 @@
+# Escala-o-da-copa2026
